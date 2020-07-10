@@ -1,2 +1,6 @@
-欲练此功
+欲练此功 
+对不起 不知道
+BBBBBBBBBBBBBB
+AAAAAAAAAAAAAAAAAAAAAAa
+必先xxxxx 
 必先自宫
